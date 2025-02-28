@@ -39,7 +39,7 @@ I work within Microsoft and Unix systems.
 
 ## Why should you hire me?
 
-*I am lazy*, and I value being able to help successfully without trying to re-invent the wheel. I like to do the least amount of work, with the greatest amount of impact. I will always do my best to simplify and educate partners for success when required.
+I value being able to help successfully without trying to re-invent the wheel. I like to do the least amount of work, with the greatest amount of impact. I will always do my best to simplify and educate partners for success when required.
 I am an effective communicator and skilled learner.
 
 My name is attached to the work I do, and ***I care deeply about being able to help***.
